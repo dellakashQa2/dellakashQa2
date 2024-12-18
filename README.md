@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning MBA in Quant Finance
 - 💞️ I’m looking to collaborate on Quant Trade Tasks
 - 📫 How to reach me akashspatil2958@gmail.com
+- work in Dell Technologies Inc.
 - 😄 Pronouns: Akii
 - ⚡ Fun fact: No
 
